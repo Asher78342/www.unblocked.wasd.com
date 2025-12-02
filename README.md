@@ -23,8 +23,9 @@
 
 🔬 [TotallyScience](https://totallyscience.co/)  
 
-➗ [CoolMathGames](https://www.coolmathgames.com/)  
+📺[Netflix](https://netflix.com/)  
 
-🎲 [Poki](https://poki.com/)  
+🦆[DuckDuckGo](https://duckduckgo.com/)  
 
-🕹️ [Roblox](https://www.roblox.com/)  
+👾[Discord](https://discord.com/)  
+
